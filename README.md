@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @HNKasia
+- 👋 Hi, I’m Kasia
 - 👀 I’m currently learning how to use GitHub - I am a newbie here :) 
 - 🌱 I’m  working in Harvey Nash Poland 
 - 💞️ I’m looking to collaborate with talented IT specialist to connect them with top companies on the market
